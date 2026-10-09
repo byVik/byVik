@@ -21,4 +21,4 @@
 
 ### Contact
 
-[LinkedIn](https://www.linkedin.com/in/viktor-strohush-loyish-412621206) · Madrid, Spain · Open to **100% remote** roles
+[Portfolio](https://viktorstrohush.dev/) · [LinkedIn](https://www.linkedin.com/in/viktor-strohush-loyish) · Madrid, Spain · Open to **100% remote** roles
